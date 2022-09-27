@@ -1,2 +1,0 @@
-# Naresh-shelar
-BCA(SCI) 
